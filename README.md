@@ -46,3 +46,4 @@ Vocalign is compatible with modern macOS systems and delivers high performance o
 ## SEO Keywords  
 
 vocalign pro mac, vocalign mac, vocalign pro macos, vocalign pro macbook, vocalign pro mac download, vocalign pro for mac, vocalign pro macbook pro, vocalign pro mac studio, vocalign pro apple silicon, vocalign pro m1, vocalign pro m2, vocalign pro logic pro, vocalign pro tools, vocalign audio alignment, vocalign pro dialogue, vocalign adr, vocalign vocals, vocalign pro plugin, vocalign pro daw, vocalign pro audio sync, vocalign pro post production, vocalign pro music production, vocalign pro podcast, vocalign pro sound design
+
